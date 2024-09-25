@@ -1,4 +1,5 @@
-# Sai Toe Tet Aung (Jack)
+## Sai Toe Tet Aung (Jack)
+#### Department of Hospitality Tourism Industry 
 
 Email / contact info/ Chaing Mai, Thailand
 

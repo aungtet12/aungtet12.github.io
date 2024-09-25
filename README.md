@@ -1,5 +1,6 @@
-## Sai Toe Tet Aung (Jack)
-#### Department of Hospitality Tourism Industry 
+## Sai Toe Tet Aung
+#### Payap University, Department of Hospitality Tourism Industry 
+
 
 Email / contact info/ Chaing Mai, Thailand
 

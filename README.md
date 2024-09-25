@@ -1,4 +1,6 @@
-# aungtet12.github.io
+# 
+
+Email / contact info/ city location
 
 ## Summary 
 
@@ -17,9 +19,9 @@ Enthusiastic second-year Tourism student with hands-on bartending experience and
 
 ## Experiences
 
-Mixology Training - Formal education or workshops in mixology to learn various cocktail receipes, techques, and the science behind flavor combinations
+- Mixology Training - Formal education or workshops in mixology to learn various cocktail receipes, techques, and the science behind flavor combinations
 
-Event Bartending - Experiencr in bartending for events, suchas weddings, or corporategatherings, to understand howto cater to different sudienced ang manage service in varied settings
+- Event Bartending - Experiencr in bartending for events, suchas weddings, or corporategatherings, to understand howto cater to different sudienced ang manage service in varied settings
 
 ## Language
 

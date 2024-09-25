@@ -1,6 +1,6 @@
 # 
 
-Email / contact info/ city location
+Email / contact info/ Chaing Mai, Thailand
 
 ## Summary 
 

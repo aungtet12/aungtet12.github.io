@@ -2,7 +2,7 @@
 #### Payap University, Department of Hospitality Tourism Industry 
 
 
-Email / contact info/ Chaing Mai, Thailand
+Email / Chaing Mai, Thailand
 
 ## Summary 
 

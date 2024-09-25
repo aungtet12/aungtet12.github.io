@@ -20,3 +20,9 @@ Enthusiastic second-year Tourism student with hands-on bartending experience and
 Mixology Training - Formal education or workshops in mixology to learn various cocktail receipes, techques, and the science behind flavor combinations
 
 Event Bartending - Experiencr in bartending for events, suchas weddings, or corporategatherings, to understand howto cater to different sudienced ang manage service in varied settings
+
+## Language
+
+  -  Burmese (Fluent)
+  -  Thai (Conversational)
+  -  English (Converastional)

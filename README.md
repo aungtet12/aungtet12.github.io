@@ -10,11 +10,9 @@ Enthusiastic second-year Tourism student with hands-on bartending experience and
 
 ## Skills
 
-#### Mixology knowledge
-- Profiency in crafting a wide range of cocktails and understanding various spirits, liquers, and mixers
+#### Mixology knowledge - Profiency in crafting a wide range of cocktails and understanding various spirits, liquers, and mixers
 
-#### Customer services
-- Skills to engage with patrons, and provide a welcoming atmosphere
+#### Customer services - Skills to engage with patrons, and provide a welcoming atmosphere
   
 #### Attention to detail
 - Precision in measuring ingredients, following recipes, ang maintaining cleaniness to ensure auality and safety

@@ -1,1 +1,22 @@
 # aungtet12.github.io
+
+## Summary 
+
+Enthusiastic second-year Tourism student with hands-on bartending experience and skilled in crafting a variety of cocktails nd bevrages, with a keeninterest in mixology and customer services. eager to ;everage bartenging skills and hospility knowledge to contribute positively to a dynamic team.
+
+## Skills
+
+#### Mixology knowledge
+- Profiency in crafting a wide range of cocktails and understanding various spirits, liquers, and mixers
+
+#### Customer services
+- Skills to engage with patrons, and provide a welcoming atmosphere
+  
+#### Attention to detail
+- Precision in measuring ingredients, following recipes, ang maintaining cleaniness to ensure auality and safety
+
+## Experiences
+
+Mixology Training - Formal education or workshops in mixology to learn various cocktail receipes, techques, and the science behind flavor combinations
+
+Event Bartending - Experiencr in bartending for events, suchas weddings, or corporategatherings, to understand howto cater to different sudienced ang manage service in varied settings

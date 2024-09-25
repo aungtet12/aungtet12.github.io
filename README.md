@@ -14,8 +14,7 @@ Enthusiastic second-year Tourism student with hands-on bartending experience and
 
 #### Customer services - Skills to engage with patrons, and provide a welcoming atmosphere
   
-#### Attention to detail
-- Precision in measuring ingredients, following recipes, ang maintaining cleaniness to ensure auality and safety
+#### Attention to detail - Precision in measuring ingredients, following recipes, ang maintaining cleaniness to ensure auality and safety
 
 ## Experiences
 

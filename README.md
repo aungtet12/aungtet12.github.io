@@ -6,7 +6,7 @@ Email / Chaing Mai, Thailand
 
 ## Summary 
 
-Enthusiastic second-year Tourism student with hands-on bartending experience and skilled in crafting a variety of cocktails nd bevrages, with a keeninterest in mixology and customer services. Eager to leverage bartenging skills and hospility knowledge to contribute positively to a dynamic team.
+Enthusiastic second-year Tourism student with hands-on bartending experience and skilled in crafting a variety of cocktails nd bevrages, with a keen interest in mixology and customer services. Eager to leverage bartenging skills and hospility knowledge to contribute positively to a dynamic team.
 
 ## Skills
 

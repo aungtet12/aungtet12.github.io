@@ -30,3 +30,7 @@ Enthusiastic second-year Tourism student with hands-on bartending experience and
   -  Burmese (Fluent)
   -  Thai (Conversational)
   -  English (Converastional)
+
+## Contact Info
+
+- [Twitter](https://x.com/saitoetetaung1?s=21&t=0fb8A48o34wHC4MAt9pSeQ)
